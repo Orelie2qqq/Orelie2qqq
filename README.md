@@ -49,6 +49,7 @@ Feel free to talk to me, ask questions, or simply say hi.
 - Friendly & easy to approach.
 - Don't be afraid to interact.
 - I may reply late sometimes.
+- DO NOT INT ME IF: RACIST, HOMOPHOBIC, AI BROS, PICK ME, TOXIC, MINOR
 
 ---
 
