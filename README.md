@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="assets/unnamed.gif" width="250"/>
+<img src="unnamed.gif" width="280"/>
 
 # 𝖘𝖆𝖆𝖒
 
