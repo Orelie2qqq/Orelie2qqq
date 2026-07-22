@@ -1,16 +1,60 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**Orelie2qqq/Orelie2qqq** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="assets/unnamed.gif" width="250"/>
 
-Here are some ideas to get you started:
+# 𝖘𝖆𝖆𝖒
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+```txt
+artist • illustrator • character designer
+```
+
+*"thích đàn ông, nhưng phải là đàn ông gây!..."*
+
+</div>
+
+---
+
+## 𓆩 About Me
+
+Hi.
+
+You can call me **Sâm**, **Saam**, or **Seth**.
+
+> **Any pronouns.**
+
+I'm a digital artist who enjoys creating original characters, experimenting with different aesthetics, and occasionally disappearing into random hyperfixations.
+
+Despite the gloomy appearance, I'm actually pretty easygoing and friendly.
+Feel free to talk to me, ask questions, or simply say hi.
+
+---
+
+## ⛧ Interests
+
+```txt
+✦ Character Design
+✦ Illustration
+✦ OC Lore
+✦ Football
+✦ Games
+✦ Music
+```
+
+---
+
+## ☾ Notes
+
+- Any pronouns.
+- Friendly & easy to approach.
+- Don't be afraid to interact.
+- I may reply late sometimes.
+
+---
+
+<div align="center">
+
+```text
+"<3"
+```
+
+</div>
