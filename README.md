@@ -38,6 +38,7 @@ Feel free to talk to me, ask questions, or simply say hi.
 ✦ Football
 ✦ Games
 ✦ Music
+✦ Reading fanfic
 ```
 
 ---
