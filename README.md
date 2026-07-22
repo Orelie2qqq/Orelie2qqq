@@ -8,7 +8,7 @@
 artist • illustrator • character designer
 ```
 
-*"thích đàn ông, nhưng phải là đàn ông gây!..."*
+*"><"*
 
 </div>
 
