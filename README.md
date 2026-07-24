@@ -8,7 +8,7 @@
 artist • illustrator • character designer
 ```
 
-*"><"*
+*"bỉ đãy supremacy lmaoooo"*
 
 </div>
 
