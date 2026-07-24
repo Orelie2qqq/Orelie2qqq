@@ -32,9 +32,8 @@ Feel free to talk to me, ask questions, or simply say hi.
 ## ⛧ Interests
 
 ```txt
-✦ Character Design
 ✦ Illustration
-✦ OC Lore
+✦ OC
 ✦ Football
 ✦ Games
 ✦ Music
@@ -48,7 +47,6 @@ Feel free to talk to me, ask questions, or simply say hi.
 - Any pronouns.
 - Friendly & easy to approach.
 - Don't be afraid to interact.
-- I may reply late sometimes.
 - DO NOT INT ME IF: RACIST, HOMOPHOBIC, AI BROS, PICK ME, TOXIC, MINOR
 
 ---
