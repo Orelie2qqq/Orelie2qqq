@@ -8,7 +8,7 @@
 artist • illustrator • character designer
 ```
 
-*"bỉ đãy supremacy lmaoooo"*
+*"Une barque sur l'océan"*
 
 <img src="unnamed.gif" width="200"/>
 </div>
