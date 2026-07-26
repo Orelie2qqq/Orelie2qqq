@@ -28,6 +28,7 @@ I'm a digital artist who enjoys creating original characters, experimenting with
 Despite the gloomy appearance, I'm actually pretty easygoing and friendly.
 Feel free to talk to me, ask questions, or simply say hi.
 
+- DO NOT INT ME IF: RACIST, HOMOPHOBIC, AI BROS, PICK ME, TOXIC, MINOR
 ---
 
 ## ⛧ Interests
@@ -43,12 +44,12 @@ Feel free to talk to me, ask questions, or simply say hi.
 
 ---
 
-## ☾ Notes
+## ☾ Social media
 
-- Any pronouns.
-- Friendly & easy to approach.
-- Don't be afraid to interact.
-- DO NOT INT ME IF: RACIST, HOMOPHOBIC, AI BROS, PICK ME, TOXIC, MINOR
+- Discord: p_onkponk
+- X: @eikenneii
+- AO3: SaamSeth
+
 
 ---
 
