@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="unnamed.gif" width="280"/>
+<img src="sadãcfvsfd.PNG" width="800"/>
 
 # 𝖘𝖆𝖆𝖒
 
@@ -10,6 +10,7 @@ artist • illustrator • character designer
 
 *"bỉ đãy supremacy lmaoooo"*
 
+<img src="unnamed.gif" width="200"/>
 </div>
 
 ---
