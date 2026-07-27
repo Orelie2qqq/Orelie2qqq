@@ -5,7 +5,7 @@
 # 𝖘𝖆𝖆𝖒
 
 ```txt
-artist • illustrator • character designer
+
 ```
 
 *"Une barque sur l'océan"*
@@ -22,12 +22,6 @@ Hi.
 You can call me **Sâm**, **Saam**, or **Seth**.
 
 > **Any pronouns.**
-
-I'm a digital artist who enjoys creating original characters, experimenting with different aesthetics, and occasionally disappearing into random hyperfixations.
-
-Despite the gloomy appearance, I'm actually pretty easygoing and friendly.
-Feel free to talk to me, ask questions, or simply say hi.
-
 - DO NOT INT ME IF: RACIST, HOMOPHOBIC, AI BROS, PICK ME, TOXIC, MINOR
 ---
 
