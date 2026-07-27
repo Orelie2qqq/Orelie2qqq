@@ -22,7 +22,7 @@ Hi.
 You can call me **Sâm**, **Saam**, or **Seth**.
 
 > **Any pronouns.**
-- DO NOT INT ME IF: RACIST, HOMOPHOBIC, AI BROS, PICK ME, TOXIC, MINOR
+- DO NOT INT ME IF: RACIST, HOMOPHOBIC, AI BROS, PICK ME, TOXIC
 ---
 
 ## ⛧ Interests
