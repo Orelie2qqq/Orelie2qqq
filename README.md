@@ -5,10 +5,10 @@
 # 𝖘𝖆𝖆𝖒
 
 ```txt
-
+"Es de anatomía, Idéntica a la mía"
 ```
 
-*"Une barque sur l'océan"*
+
 
 </div>
 
