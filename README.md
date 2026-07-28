@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="sadãcfvsfdá.png" width="800"/>
+<img src="hello.png" width="800"/>
 
 # 𝖘𝖆𝖆𝖒
 
@@ -10,7 +10,6 @@
 
 *"Une barque sur l'océan"*
 
-<img src="unnamed.gif" width="200"/>
 </div>
 
 ---
@@ -55,7 +54,7 @@ You can call me **Sâm**, **Saam**, or **Seth**.
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nikb4yhtcfcigyvy6x6q2mhopi&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=70a0ff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)  
 
 ```text
-"<3"
+"LOVE CR7 SOOOO MUCH! vvvvv"
 ```
-
+<img src="unnamed.gif" width="200"/>
 </div>
