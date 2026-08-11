@@ -5,7 +5,7 @@
 # 𝖘𝖆𝖆𝖒
 
 ```txt
-"Es de anatomía, Idéntica a la mía"
+"queer is an art, protect it!!!"
 ```
 
 
