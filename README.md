@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="hello.PNG" width="800"/>
+<img src="Khong_Co_Tieu_e9_20260826025408.png" width="1000"/>
 
 # 𝖘𝖆𝖆𝖒
 
