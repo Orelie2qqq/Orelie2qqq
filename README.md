@@ -2,6 +2,11 @@
 
 <img src="Khong_Co_Tieu_e9_20260826025408.png" width="1000"/>
 
+<img src="111.png" width="600"/>
+
+<img src="222.png" width="600"/>
+
+<img src="333.png" width="1000"/>
 # 𝖘𝖆𝖆𝖒
 
 ```txt
@@ -21,19 +26,10 @@ Hi.
 You can call me **Sâm**, **Saam**, or **Seth**.
 
 > **Any pronouns.**
-- DO NOT INT ME IF: RACIST, HOMOPHOBIC, AI BROS, PICK ME, TOXIC
+
 ---
 
-## ⛧ Interests
 
-```txt
-✦ Illustration
-✦ OC
-✦ Football
-✦ Games
-✦ Music
-✦ Reading fanfic
-```
 
 ---
 
