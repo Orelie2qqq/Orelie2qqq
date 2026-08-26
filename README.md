@@ -4,7 +4,13 @@
 
 <img src="111.png.png" width="600"/>
 
+⠀ ⠀ ⠀♡ ⠀ ⠀ :   ℱ𝔬𝗋 𝗒𝔬𝗎⠀ ⠀｡ ⠀ᥕ𝗁𝔬 𝖻𝗋𝔬𝗎𝗀𝗁𝗍 𝘮𝘦 𝓼𝗉𝗋𝗂𝗇𝗀
 
+⠀ ⠀ ⠀𝔴𝗁𝖾𝗇 𝖨 𝗆𝖾𝗋𝖾𝗅𝗒 𝖺̲𝗌̲𝗄̲𝖾̲𝖽̲⠀⠀  ⠀ ⠀⠀🌸⠀ ⠀⠀ ⠀𝖿𝗈𝗋 𝖺 𝓼𝗂𝗇𝗀𝗅𝖾 𝒻𝗅𝗈ω𝖾𝗋
+
+⠀ ⠀ ⠀ ⠀ ◞ 𝓘  ⠀𝖿𝔬𝗎𝗇𝖽  ⠀𝗒𝔬𝗎 ⠀ 𓏲  ⠀𝓐𝗇𝖽  ⠀𝗒𝗈𝗎 ⠀ 𝖿𝔬𝗎𝗇𝖽  ⠀𝗆𝖾 ⠀ ୭ ˚. ᵎᵎ 
+
+𝅄 ݁ ⏜⠀  ℳ𝖺  ⠀ ᥴh𝔢𝔯𝔦𝔢 ⠀, ⠀ 𝗒͟𝗈͟𝗎͟  ⠀ 𝖺𝗋𝖾 ⠀ 𝗆𝗒  ⠀𝖾𝗍𝖾𝗋𝗇𝗂𝗍𝗒 ⠀𔘓  ๑ ֹ ₊ㅤ ۟
 
 
 
@@ -13,6 +19,15 @@
 ```txt
 "queer is an art, protect it!!!"
 ```
+
+
+multifandom but mostly football rpf and reverse 1999 rn
+
+  feel free to int!
+
+  more info in my 🍓 and rentry page!!
+
+࿙࿚ ︶ ⠀♱⠀ ︶࿙࿚ 𝅄
 
 <img src="222.png.png" width="500"/>
 
